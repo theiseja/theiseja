@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, I'm Jesse 👋
 🔭 I’m currently working on Updating my portfolio with projects <br >
 🌱 I’m currently studying Computer Science at Southern New Hampshire University <br >
 ⚡ Fun fact: I used to be a paranormal investigator and I'm into Tarot <br >
